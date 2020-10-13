@@ -1,3 +1,3 @@
 Screw you.
 No thank you,
-I would rather you not.
+I would rather not.
